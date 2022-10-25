@@ -1,0 +1,1 @@
+# Busqueda-de-genes-de-resistencia-antimicrobiana-y-factores-de-virulencia
